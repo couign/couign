@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **Courtneyignace@gmail.com**
 
-- 📄 Know about my experiences: [resume](https://drive.google.com/file/d/1pmdfLKYZ8xjIcYB4DuvNbDWGSaCgD_A6/view?usp=sharing)
+- 📄 Know about my experiences: [resume](https://drive.google.com/file/d/1fXGCaIjZiN57QBkAjHvNig-Pl1XTX3K1/view?usp=sharing)
 
 - ⚡ Fun fact **I have a small business in which I upcycle vintage textiles into new clothes! Check out my Instagram!**
 
